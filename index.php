@@ -18,3 +18,5 @@ gweknlew
 khlwekgewgemwô
 pmkgewgwe
 kglwegewk
+bmhôwemlg
+pmeôwegw
