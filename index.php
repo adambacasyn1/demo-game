@@ -5,6 +5,7 @@ howemklhwemhkewôm
 gwherhrjekewnkhwenôhwke
 khwemkhlnweln
 hweophwephwepkohkoepw
+kjhrejerjreje
 jerjrejerklewkgnwenkhwe
 hmehweklhnklweknegwengewnl
 wkehphewpjpoweophew
